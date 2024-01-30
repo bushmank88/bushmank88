@@ -2,7 +2,7 @@
 - 👀 I’m interested in rock music and horror movies.
 - 🌱 I’m currently learning to be a Meta front-end developer
 - 💞️ I’m looking to collaborate on projects with a learning curve
-- 📫 How to reach me email me at bushman.k23@gmail.com
+- 📫 How to reach me: email me at bushman.k23@gmail.com
 - 😄 Pronouns: She/her 
 - ⚡ Fun fact: I adore cats! Did you know that the majority of Maine Coon cats have 6 toes on each paw? they call this polydactylism!
 
