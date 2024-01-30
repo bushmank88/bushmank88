@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects with a learning curve
 - 📫 How to reach me: email me at bushman.k23@gmail.com
 - 😄 Pronouns: She/her 
-- ⚡ Fun fact: I adore cats! Did you know that the majority of Maine Coon cats have 6 toes on each paw? they call this polydactylism!
+- ⚡ Fun fact: I adore cats! Did you know that the majority of Maine Coon cats have 6 toes on each paw? This trait is called polydactylism!
 
 <!---
 bushmank88/bushmank88 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
